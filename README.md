@@ -1,4 +1,3 @@
-# hello-world
-I'm here but my fire is down 
+# hello-world 
 
 You wanna know what heaven really is? Try being GOD 
